@@ -1,6 +1,4 @@
-![](https://s2.ezgif.com/tmp/ezgif-2bfe1cd6dcc67f.png)  
-look at my fluxarata bruh 😭😭😭😭😭   
+![](https://file.garden/aDT0Ck-AL1_uKJ4P/misc/kkya)  ![](https://file.garden/aDT0Ck-AL1_uKJ4P/misc/slider)  
+fly high saparatas we miss you dearly fluxarata forever doomed   
 [rentry](https://rentry.co/conspire)‎‎ ‎[atabook](https://flux.atabook.org/)
 
-![](https://s2.ezgif.com/tmp/ezgif-23bc457438d60a.png)  
-fly high saparatas we miss you so much
